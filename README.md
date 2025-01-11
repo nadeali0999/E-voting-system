@@ -71,3 +71,10 @@ Election Results:
 
 View real-time results once voting is complete.
 
+![4](https://github.com/user-attachments/assets/b800901f-3db3-4b9d-bf31-c5ce7a04fc81)
+![1](https://github.com/user-attachments/assets/08b20d6a-b546-45b4-9a64-58be9ca7d4f4)
+![6](https://github.com/user-attachments/assets/f4f74f25-2d15-423d-9c4d-8de0d9bb926e)
+![10](https://github.com/user-attachments/assets/3e002e92-9b8b-4f0e-8838-92db28ba3347)
+
+
+![1](https://github.com/user-attachments/assets/62f0c3f9-32e8-44d0-94d3-d789ba73b482)
